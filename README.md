@@ -36,7 +36,7 @@ Sólymos Péter, Czentye Ibolya, Tutkovics Bernadett, 2006-2007. Szárazföldi c
 Buncsák Katalin, 2006-2007. Szakirodalom ajánló: Pelbárt Jenő - Domokos Tamás: A magyarországi recens puhatestűek (Mollusca) magyar köznyelvi elnevezései (2005). _Soosiana_, **27-28**: 44--44. [PDF](https://soosiana.github.io/volume-27-28/10_Soosiana_2006-7_27-28_Buncsak_44.pdf)
 
 
-Andrei,Gabriela, Váncsa Klára, 2006-2007. Emlékezés Alexandru V. Grossu professzor úrra (1910-2004), a XX. század egyik jól ismert malakológusára. _Soosiana_, **27-28**: 45--55. [PDF](https://soosiana.github.io/volume-27-28/11_Soosiana_2006-7_27-28_Andrei-Vancsa_45-55.pdf)
+Andrei, Gabriela, Váncsa Klára, 2006-2007. Emlékezés Alexandru V. Grossu professzor úrra (1910-2004), a XX. század egyik jól ismert malakológusára. _Soosiana_, **27-28**: 45--55. [PDF](https://soosiana.github.io/volume-27-28/11_Soosiana_2006-7_27-28_Andrei-Vancsa_45-55.pdf)
 
 
 Dovgal, Igor V., 2006-2007. A tudomány nagy vesztesége: Alexei V. Koniushin (1962. 12. 07.-2004. 01. 08.). _Soosiana_, **27-28**: 57--58. [PDF](https://soosiana.github.io/volume-27-28/12_Soosiana_2006-7_27-28_Dovgal_57-58.pdf)
